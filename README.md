@@ -1,2 +1,2 @@
 # hacktober_1
-this is my  first hacktober attempt and i m really excited.
+this is my  first pull requesy.yayy!!
